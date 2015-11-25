@@ -1,2 +1,2 @@
-# balarthi.github.io
+# strictlysurprises.com
 Homepage for strictlysurprises.com website
